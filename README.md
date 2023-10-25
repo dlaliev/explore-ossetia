@@ -1,1 +1,1 @@
-# explore-ossetia
+# Лалиев Давид
